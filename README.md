@@ -1,2 +1,2 @@
 # Kiran
-this is my first project
+my name is kiran and i am very excited to my first project
